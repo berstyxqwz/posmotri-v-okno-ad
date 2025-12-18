@@ -1,1 +1,1 @@
-https://github.com/berstyxqwz/posmotri-v-okno-ad#
+https://github.com/berstyxqwz/posmotri-v-okno-ad
